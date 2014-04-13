@@ -16,11 +16,11 @@ Basically: we wanted a concise nontheistic version of a Haggadah. We both love P
 
 First off, setting up a passover seder is easy. You have a week to gather your friends and family (anyone you love and are thankful for being in your life) for a passover meal. Arrange a seder plate [with the usual stuff](https://en.wikipedia.org/wiki/Passover_Seder_Plate) but add an orange. Put the seder plate in the center of the plate. Don't forget to cook your food. Personally: I like matzoh-ball soup and brisket the most. 
 
-Print this Haggadah out, or send it around to folks before hand. You probably need at least 4 people, but honestly, you could make it work with two. At every section change, you can change readers if you have a large crowd. It's probably a good idea to have one person giving out reading assignments and prompting folks to join.
+Print this Haggadah out, or send it around to folks before hand. You probably need at least 4 people, but honestly, you could make it work with two. Just make sure the group sections are read aloud by everyone, it makes it a lot more powerful and uniting. At every section change, you can change readers if you have a large crowd. If that's the case, it's probably a good idea to have one person giving out reading assignments and prompting folks to join.
 
 ### Do I have to be Jewish to use it?
 
-Not at all. We specifically meant this to be open to all sorts of people, whether you believe in god or not.
+Not at all. We specifically meant this to be open to all sorts of people, whether you believe in god or not. If you want to take this and make it more specific to your background you are welcome to do so. 
 
 ### What are your sources?
 
