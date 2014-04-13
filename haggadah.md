@@ -234,5 +234,5 @@ We will now raise our glasses and say:
 
 ## Let's Eat
 
-Reader 1: Now it is time for our leisurely, and scrumptious Pesakh meal. 
+**Reader 1**: Now it is time for our leisurely, and scrumptious Pesakh meal. 
 
