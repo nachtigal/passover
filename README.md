@@ -26,6 +26,8 @@ Not at all. We specifically meant this to be open to all sorts of people, whethe
 
 Thanks for asking. We condensed primarily from the adaptation "A Humanist Modern Version Haggadah For Passover" by [Eszter Hargittai](http://www.twitter.com/eszter). Her text is great, but we wanted to make it shorter and accesible to folks of all religions while still retaining the story of the Jewish people.
 
+If you see anything wrong, let me know by telling me [on twitter](https://twitter.com/mischa).
+
 ### Do you have this in any other formats?
 
 Sure. [Here's a link to a public Google Doc](https://docs.google.com/document/d/1rX-s_up0ABUTQRH_oJn50pBppvcKbQKWXFuHp9T17rE/edit?usp=sharing). Feel free to download and turn it into whatever format you want.
