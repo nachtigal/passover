@@ -2,7 +2,7 @@ A Modern Passover
 ========
 
 ### What is this?
-A nontheistic haggadah. No "God," no denominations. Instead we have the good stories, important quotes about civil liberties, and the four questions (plus one). Only takes 15 minutes to get through. Get to your meal before the matzoh balls get cold. 
+A nontheistic haggadah. No "God." Instead we have the good stories, important quotes about civil liberties, and the four questions (plus one). Only takes 15 minutes to get through. Get to your meal before the matzoh balls get cold. 
 
 ### Who made this Haggadah?
 
