@@ -2,11 +2,11 @@ A Modern Passover
 ========
 
 ### What is this?
-A nontheistic haggadah. No "God." Instead we have the good stories, important quotes about civil liberties, and the four questions (plus one). Only takes 15 minutes to get through. Get to your meal before the matzoh balls get cold. 
+A nontheistic haggadah. No "God." Instead we have the good stories, important quotes, and the four questions (plus one). Only takes 15 minutes to get through. This haggadah helps you get to your meal before the matzah balls get cold. 
 
 ### Who made this Haggadah?
 
-Myself and my amazing girlfriend, [Tina Vaughn](http://tinamvaughn.com) put this together last year. But we borrowed heavily from lots of sources, see below for more on those sources.
+Myself and my amazing girlfriend, [Tina Vaughn](http://tinamvaughn.com) put this together last year. But we borrowed heavily from some sources, see below for more.
 
 ### Why'd you do it?
 
@@ -25,6 +25,10 @@ Not at all. We specifically meant this to be open to all sorts of people, whethe
 ### What are your sources?
 
 Thanks for asking. We condensed primarily from the adaptation "A Humanist Modern Version Haggadah For Passover" by [Eszter Hargittai](http://www.twitter.com/eszter). Her text is great, but we wanted to make it shorter and accesible to folks of all religions while still retaining the story of the Jewish people.
+
+We got some prayers and songs from other places around the web.
+
+Quotes came via wikiquote or Google.
 
 If you see anything wrong, let me know by telling me [on twitter](https://twitter.com/mischa).
 
