@@ -4,14 +4,28 @@ A Modern Passover
 ### What is this?
 A nontheistic haggadah. No "God," no denominations. Instead we have the good stories, important quotes about civil liberties, and the four questions (plus one). Only takes 15 minutes to get through. Get to your meal before the matzoh balls get cold. 
 
-### Who did this?
+### Who made this Haggadah?
 
-Myself and my amazing girlfriend, [Tina Vaughn](http://tinamvaughn.com) put this together last year.
+Myself and my amazing girlfriend, [Tina Vaughn](http://tinamvaughn.com) put this together last year. But we borrowed heavily from lots of sources, see below for more on those sources.
 
 ### Why'd you do it?
 
 Basically: we wanted a concise nontheistic version of a Haggadah. We both love Passover: the stories, the questions, the food, the time you spend with your families, and the fact that it's a meal that has a lot of important themes that still resonate today. Slavery is still an issue in this world, and we wanted a Haggadah that focused on the theme of civil and social liberties and brought them into a modern context.
 
+### How do I use this Haggadah and have a seder?
+
+First off, setting up a passover seder is easy. You have a week to gather your friends and family (anyone you love and are thankful for being in your life) for a passover meal. Arrange a seder plate [with the usual stuff](https://en.wikipedia.org/wiki/Passover_Seder_Plate) but add an orange. Put the seder plate in the center of the plate. Don't forget to cook your food. Personally: I like matzoh-ball soup and brisket the most. 
+
+Print this Haggadah out, or send it around to folks before hand. You probably need at least 4 people, but honestly, you could make it work with two. At every section change, you can change readers if you have a large crowd. It's probably a good idea to have one person giving out reading assignments and prompting folks to join.
+
+### Do I have to be Jewish to use it?
+
+Not at all. We specifically meant this to be open to all sorts of people, whether you believe in god or not.
+
 ### What are your sources?
 
 Thanks for asking. We condensed primarily from the adaptation "A Humanist Modern Version Haggadah For Passover" by [Eszter Hargittai](http://www.twitter.com/eszter). Her text is great, but we wanted to make it shorter and accesible to folks of all religions while still retaining the story of the Jewish people.
+
+### Do you have this in any other formats?
+
+Sure. Here's a link to a public Google Doc. Feel free to download and turn it into whatever format you want.
