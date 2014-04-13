@@ -195,8 +195,10 @@ My idea of an orange and my intention of affirming lesbians and gay men were tra
 
 Translation:
 
-If we only had our freedom. DIE-YAY-NOO. 
+If we only had our freedom. DIE-YAY-NOO.
+
 If we only had our Seder. DIE-YAY-NOO. 
+
 If we only had our hope. DIE-YAY-NOO. 
 
 ["DIE-YAY-NOO" means: It would have been sufficient.] 
