@@ -26,7 +26,7 @@ Print this Haggadah out, or send it around to folks before hand. You probably ne
 
 ### Do I have to be Jewish to use it?
 
-Not at all. We specifically meant this to be open to all sorts of people, whether you believe in god or not. If you want to take this and make it more specific to your background you are welcome to do so. 
+Not at all. We specifically meant this to be open to all sorts of people of all kinds of faith and we sourced most of the text from secular-oriented haggadahs. If you want to take this and make it more specific to your background, you are welcome to do so. 
 
 ### Do you have this in any other formats?
 
