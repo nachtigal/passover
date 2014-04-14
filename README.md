@@ -6,7 +6,13 @@ A nontheistic haggadah. No "God." Instead we have the good stories, important qu
 
 ### Who made this Haggadah?
 
-Myself and my amazing girlfriend, [Tina Vaughn](http://tinamvaughn.com) put this together last year. But we borrowed heavily from some sources, see below for more.
+Myself and my amazing girlfriend, [Tina Vaughn](https://github.com/tinavn) [(check out her website)](http://www.tinamvaughn.com/) put this together last year. But we borrowed heavily from some a few sources.
+
+This is a condensed version from the adaptation "[A Hum sanist Modern Version Haggadah For Passover](http://www.eszter.com/Haggadah.pdf)" by [Eszter Hargittai](http://www.twitter.com/eszter). Her text is great, but we wanted to make it shorter and add in some of our favorite quotes. She got her version by adapting Machar's ["A HUMANIST HAGGADAH FOR PASSOVER"](http://www.machar.org/wp-content/uploads/2013/01/Machar-Humanistic-Haggadah.pdf) and ["Passover Haggadah for a Secular-Humanist Seder"](http://www.citycongregation.org/celebrations/sample-services/#passover) City Congregation for Humanistic Judaism, New York City.
+
+We got some prayers and songs from other places around the web. Quotes came via wikiquote or Google.
+
+If you see anything wrong, let me know by telling me [on twitter](https://twitter.com/mischa).
 
 ### Why'd you do it?
 
@@ -21,16 +27,6 @@ Print this Haggadah out, or send it around to folks before hand. You probably ne
 ### Do I have to be Jewish to use it?
 
 Not at all. We specifically meant this to be open to all sorts of people, whether you believe in god or not. If you want to take this and make it more specific to your background you are welcome to do so. 
-
-### What are your sources?
-
-Thanks for asking. We condensed primarily from the adaptation "A Humanist Modern Version Haggadah For Passover" by [Eszter Hargittai](http://www.twitter.com/eszter). Her text is great, but we wanted to make it shorter and accesible to folks of all religions while still retaining the story of the Jewish people.
-
-We got some prayers and songs from other places around the web.
-
-Quotes came via wikiquote or Google.
-
-If you see anything wrong, let me know by telling me [on twitter](https://twitter.com/mischa).
 
 ### Do you have this in any other formats?
 
