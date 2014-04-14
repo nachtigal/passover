@@ -2,7 +2,7 @@
 
 *For those who want to remember, for those who want to take stock, for those who want to be thankful, and for those who want to get to the meal faster.*
 
-> This Haggadh was compiled by [Mischa Nachtigal](http://twitter.com/mischa) and [Tina Vaughn](http://www.tinamvaughn.com/) in 2013. But we borrowed heavily from some a few sources.
+> This Haggadh was compiled by [Mischa Nachtigal](http://twitter.com/mischa) and [Tina Vaughn](http://www.tinamvaughn.com/) in 2013. But we borrowed heavily from a few sources.
 
 > This is a condensed version from the adaptation "[A Humaanist Modern Version Haggadah For Passover](http://www.eszter.com/Haggadah.pdf)" by [Eszter Hargittai](http://www.twitter.com/eszter). Her text is great, but we wanted to make it shorter and add in some of our favorite quotes. She got her version by adapting Machar's ["A HUMANIST HAGGADAH FOR PASSOVER"](http://www.machar.org/wp-content/uploads/2013/01/Machar-Humanistic-Haggadah.pdf) and ["Passover Haggadah for a Secular-Humanist Seder"](http://www.citycongregation.org/celebrations/sample-services/#passover) City Congregation for Humanistic Judaism, New York City.
 
