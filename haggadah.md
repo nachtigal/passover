@@ -2,6 +2,16 @@
 
 *For those who want to remember, for those who want to take stock, for those who want to be thankful, and for those who want to get to the meal faster.*
 
+### Authorship
+
+> This Haggadh was compiled by [Mischa Nachtigal](http://twitter.com/mischa) and [Tina Vaughn](http://www.tinamvaughn.com/) in 2013. But we borrowed heavily from some a few sources.
+
+> This is a condensed version from the adaptation "[A Humaanist Modern Version Haggadah For Passover](http://www.eszter.com/Haggadah.pdf)" by [Eszter Hargittai](http://www.twitter.com/eszter). Her text is great, but we wanted to make it shorter and add in some of our favorite quotes. She got her version by adapting Machar's ["A HUMANIST HAGGADAH FOR PASSOVER"](http://www.machar.org/wp-content/uploads/2013/01/Machar-Humanistic-Haggadah.pdf) and ["Passover Haggadah for a Secular-Humanist Seder"](http://www.citycongregation.org/celebrations/sample-services/#passover) City Congregation for Humanistic Judaism, New York City.
+
+> We got some prayers and songs from other places around the web. Quotes came via wikiquote or Google.
+
+> If you see anything wrong, let me know by telling me [on twitter](https://twitter.com/mischa).
+
 ## Invitation
 
 **Reader 1**: We have come together this evening for many reasons. We are here because Spring is all around, the Earth is reborn, and it is a good time to celebrate with family and friends. 
@@ -32,10 +42,19 @@
 
 **Reader 1**: Passover is the celebration of Life. Despite many centuries of memories of destruction our hearts are tempered by the knowledge that the world can also be good. We have endured slavery and humiliation. But we have also enjoyed freedom and power. 
 
+**Group:** *We have learned to endure. We have learned to progress. We don’t just survive, we live, and we thrive.*
 
-
-**Group:** *We have learned to endure. We have learned to progress. We don’t just survive,We live, and we thrive.*
-
+**Reader 2**: It is written that long ago, during a time of famine, the ancient Israelites traveled to Egypt. According to this legend, the Israelites at that time were all in a single family - Jacob and his children. 
+ 
+**Reader 3**: One of Jacob's sons was Joseph. He was so wise that the ruler of Egypt - the Pharaoh - made Joseph a leader over all the people of Egypt. 
+ 
+**Reader 1**: But as time passed, another Pharaoh became the ruler of Egypt. He did not remember about Joseph and his wise leadership. This new Pharaoh turned the Israelites into slaves, and burdened them with heavy work and sorrow. 
+ 
+**Reader 2**: After the Israelites were in Egypt for over 400 years, a man arose among them. He demanded that Pharaoh let his people go! Many times he risked his life to insist on the freedom of his people, until he finally succeeded. 
+ 
+**Reader 3**: At our Passover Seder, we celebrate the story of Moses and the people he led out of slavery 3000 years ago. We celebrate the struggle of all people to be free.  Throughout the centuries, the story of Moses and the exodus from Egypt has inspired Jews and non-Jews in times of persecution and hardship. 
+ 
+**Group**: *Let us remember that the thirst for freedom exists in all people.* 
 
 ## The Four Questions (+1)
 
